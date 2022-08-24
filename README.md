@@ -5,3 +5,6 @@ https://daltonbellini.github.io/game-of-who-will-wash-the-dishes/
 
 ![image](https://user-images.githubusercontent.com/90783550/186418785-3f17089a-ae05-4378-92d8-5de5e88d351a.png)
 
+![image](https://user-images.githubusercontent.com/90783550/186421240-fc1df3c1-d31a-4655-83e7-c2789f0ead1c.png)
+
+
